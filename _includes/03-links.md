@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[Instagram](https://www.instagram.com/akansha.612?r=nametag)
